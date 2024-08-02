@@ -1,9 +1,13 @@
 Tugcem Yalcin, Software Engineer
 
 Email: tugcemyalcin@gmail.com
+
 Address: London, United Kingdom
+
 Nationality: Australian and Turkish
+
 LinkedIn: linkedin.com/in/tugcem-yalcin
+
 UK Visa details: UK Youth Mobility Visa (Sept 2024 - Sept 2027)
 
 Summary: 
